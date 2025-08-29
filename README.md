@@ -2,7 +2,7 @@
 - 👀 I’m interested in Python
 - 🌱 I’m currently learning Python
 - 🤝 I’m looking to collaborate on Projects based on Python
-- 📫 How to reach me Samarpan7+github@gmail.com
+- 📫 How to reach me Summer_pan77@proton.me
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
